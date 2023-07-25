@@ -1,1 +1,1 @@
-# Collegewebsite
+# sreenidhielite2.github.io
